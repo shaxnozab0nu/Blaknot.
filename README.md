@@ -1,0 +1,2 @@
+# Blaknot.
+Blaknot oynasi
